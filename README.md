@@ -1,0 +1,5 @@
+Dako Il Capo es un talentoso artista musical urbano de 23 años que ha conquistado la escena de la música urbana en Chile con su estilo único y letras cautivadoras. Originario de Chile, su pasión por la música se ha convertido en una expresión auténtica de su identidad y experiencias de vida.
+
+El nombre "Dako Il Capo" se ha vuelto sinónimo de originalidad y creatividad en la escena musical urbana de Chile. Su música combina ritmos contemporáneos con letras que abordan temas de la vida cotidiana, desafíos personales y la cultura local. Su capacidad para conectar con su audiencia a través de su música y sus letras profundas ha consolidado su lugar como un destacado talento en el panorama musical chileno.
+
+Con tan solo 23 años, Dako Il Capo promete un futuro brillante en la industria musical. Su versatilidad y su habilidad para explorar una variedad de géneros musicales lo distinguen como un artista completo. Su música es un reflejo de su pasión, determinación y su deseo de dejar una huella perdurable en la escena musical urbana de Chile y más allá.
